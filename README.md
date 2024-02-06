@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **karpunov.yury@yandex.ru**
 
-- 💬 My nickname in telegram **@Yurchikk13**
+- 💬 My nickname in telegram **https://t.me/Yurchikk13**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1KVR3mZ-KEbQAzBcqtdivZKqFxJX5YsMp/view?usp=share_link](https://drive.google.com/file/d/1KVR3mZ-KEbQAzBcqtdivZKqFxJX5YsMp/view?usp=share_link)
 
